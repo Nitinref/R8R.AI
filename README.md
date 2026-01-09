@@ -747,3 +747,5 @@ Special thanks to:
 © 2025 R8R AI. All rights reserved.
 
 </div>
+#   R 8 R . A I  
+ 
